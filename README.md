@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jasraj28
+- 👋 Hi, I’m @jasraj28 (Jaspreet Singh)
 - 👀 I’m interested in Design
 - 🌱 I’m currently learning UX Design & Project Management
 - 📫 Find me on Linkdin : www.linkedin.com/in/jaspreetsingh28
